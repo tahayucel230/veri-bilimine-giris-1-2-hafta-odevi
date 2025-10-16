@@ -1,0 +1,1 @@
+# veri-bilimine-giris-1-2-hafta-odevi
